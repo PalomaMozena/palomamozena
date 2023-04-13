@@ -18,4 +18,8 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=PalomaMozena&icon=0&color=0)](https://visitcount.itsvg.in)
 
+<div>
+  <a href="https://pt.scrapee.net/criar-gif-animado-htm"><img src="https://images.scrapee.net/result/2023041321453531V09hnoGt.gif" alt="criador de gifs animados scrapee.net" style="max-width:424px"></a>
+</div>
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
